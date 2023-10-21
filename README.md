@@ -27,7 +27,7 @@ Tutorialnya di yt klik link di bawah
 📢 saya tidak bertanggung jawab atas segala sesuatu yang merugikan pihak lain maupun didunia atau akhirat 
 
 # Download Token
-<li><code>Download<a href="https://khaddavi.net/s7bgc4XN1K">Token</a></code></li> 
+<li><code>Download<a href="">Token</a></code></li> 
 
 # Subscribe 
 > Subscribe my channel
